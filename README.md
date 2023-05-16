@@ -1,5 +1,4 @@
 ### Hi there 👋
-### WELCOME TO ZILEHUDA OR ZILAY's HUB
 
 
 <!--
